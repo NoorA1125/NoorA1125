@@ -11,13 +11,12 @@ Other Skillsets who won follow up but didn't get the recognition they deserved:
 - Figma - For all my designing and wireframing work.
 - Github/Git
 - Stackoverflow/Google/Good Debigging Tool - Professional Google(r) 
-- Networking & Data Tech Background 
 
 I can be best reached by the below informstion
 - 📫 nooromar305@gmail.com 
 - 📲 (520)342-4458
 
-BUT WAIT! Theres more --> 
+BUT WAIT! Theres more --> ${LINK TO PRTFLO}
 
 <!---
 MBTI - ESTF - Energetic problem solver
