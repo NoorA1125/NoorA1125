@@ -16,7 +16,7 @@ I can be best reached by the below informstion
 - 📫 nooromar305@gmail.com 
 - 📲 (520)342-4458
 
-BUT WAIT! Theres more --> https://noora1125.github.io/noorabdikadir
+BUT WAIT! Theres more --> https://noora1125.github.io/nabdikadir/.
 
 <!---
 MBTI - ESTF - Energetic problem solver
